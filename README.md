@@ -1,1 +1,1 @@
-# Rural-Immersion
+# Rural-Immersion-of-kandalgaon-Kolhpur
